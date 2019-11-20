@@ -1,3 +1,3 @@
 # hello-world everybody
 Nothing to see here (?)
-Blast and bothermennnt. Eureka!
+Blast and botherment. Eureka!
